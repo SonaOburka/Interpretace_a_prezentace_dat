@@ -1,0 +1,1 @@
+# Interpretace_a_prezentace_dat
